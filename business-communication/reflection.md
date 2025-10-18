@@ -1,7 +1,7 @@
 # 💼 Business Communication
 
 This section highlights my professional communication development through both theoretical and practical experiences.  
-Effective communication ensures that ideas are expressed clearly, tasks are understood, and collaboration happens smoothly — qualities essential in any professional environment.  
+Effective communication ensures that ideas are expressed clearly, tasks are understood, and collaboration happens smoothly, qualities essential in any professional environment.  
 Here, I present three artefacts that demonstrate my ability to apply communication theory in real workplace settings.
 
 ---
